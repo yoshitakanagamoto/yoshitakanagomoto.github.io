@@ -1,0 +1,1 @@
+# yoshitakanagomoto.github.io
